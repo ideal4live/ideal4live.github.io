@@ -1,1 +1,1 @@
-# ideal4live.github.io
+# ideal4live.com
